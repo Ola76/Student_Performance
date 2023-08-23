@@ -30,4 +30,4 @@ In the vast cosmos of education, each student is a star. Through this analytical
 
 ---
 
-🌠 **Happy Exploring! May the chords of data always play in your favour.** 🌠
+🌠 **Happy Exploring! May the chords of data always play in your favor.** 🌠
